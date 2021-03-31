@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+I am a Code Learner🔰
+🌱Speak your truth, even if your voice shakes🌱
+
+
 <!--
 **clareahnem/clareahnem** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
