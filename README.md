@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 I am a Code Learner🔰
+
 🌱Speak your truth, even if your voice shakes🌱
 
 
