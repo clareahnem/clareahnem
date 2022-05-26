@@ -1,8 +1,6 @@
-### Helloo 👋
+### Clare Here 👋
 
-I am a Code Learner🔰
-
-🌱Speak your truth, even if your voice shakes🌱
+Always Learning🔰
 
 
 <!--
